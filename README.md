@@ -1,0 +1,1 @@
+# Avast-Premium-Security-24.12.9725-License-Key-Till-2050
